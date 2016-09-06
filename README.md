@@ -6,7 +6,7 @@ Add your name to the list below:
 1.  
 2. Mohammed Dabdoub
 3. Becca Hahn
-4. 
+4. James Beedie
 5. Max Grogg
 6. 
 7. 
